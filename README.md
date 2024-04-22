@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @amacfar1
 - 👀 I’m interested in dancing monkeys
-- 🌱 I’m currently learning fnaf
+- 🌱 I’m currently learning rizz
 - 💞️ I’m looking to collaborate on fnaf
 - 📫 How to reach me fart@gmail you dop
 - 😄 Pronouns: Nonyourbuiness
